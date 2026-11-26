@@ -146,8 +146,9 @@ Where:
 <img width="744" height="696" alt="Screenshot (329)" src="https://github.com/user-attachments/assets/c890e8a0-abf0-414e-b2be-a0fdd46325c7" />
 
 ### TABULATION
+<img width="956" height="1600" alt="image" src="https://github.com/user-attachments/assets/ee52cdb1-e6b2-40d5-8a81-8130630cd47b" />
 
-<img width="898" height="1437" alt="WhatsApp Image 2026-10-15 at 2 42 04 PM" src="https://github.com/user-attachments/assets/f0934b20-c2af-49ba-ab3d-832e8fcb2f98" />
+<img width="1600" height="1109" alt="image" src="https://github.com/user-attachments/assets/e4687382-f11e-4aeb-9c89-a330e649bafa" />
 
 
 ### RESULT 
